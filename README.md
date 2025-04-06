@@ -1,1 +1,1 @@
-# Connection-7D
+# Connection-7D Adventists App
